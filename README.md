@@ -1,1 +1,2 @@
-# Harpreet128.github.ig1
+Today is our math class sir tell us about integration.He tell us about product rules used in integration.He tell us about different and easy method on solving problems.He give us sum to solve.He also tell us about definite integration.
+Today second class is peer interaction canvo class taken by our senior.she tell us about canvo app.How to use it.what are the features in it. How we can make posters.
